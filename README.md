@@ -20,6 +20,16 @@ https://github.com/Poushali-saha/CODSOFT/assets/170629853/97bd1c5b-1754-4472-969
 
 
 
+🚀 Internship Tasks Completed! 🎉
+
+Mission accomplished! I've successfully completed the tasks assigned during my internship. This repository showcases the culmination of my efforts, skills, and dedication throughout the internship period. I'm grateful for the learning opportunities and experiences gained along the way. Now, equipped with new knowledge and expertise, I'm ready to embark on the next phase of my journey with confidence and enthusiasm! 🌟 #InternshipSuccess #NextChapter
+
+
+
+
+
+
+
 
 
    
